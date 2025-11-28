@@ -1,1 +1,0 @@
-# ghajty.github.io
